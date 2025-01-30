@@ -1,4 +1,4 @@
-# 🎰 Mahjong Ways 1 - Simulasi Judi Online 🚫💸
+# 🎰 Simulasi Judi Online 🚫💸
 
 > **"Menang bikin senang, kalah bikin hutang!"** 💀
 
